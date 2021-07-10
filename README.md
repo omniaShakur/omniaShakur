@@ -5,5 +5,4 @@
 - 📫 Follow me with the below links, 
 in Behace: https://www.behance.net/omniaimam,
 in Linkedin: https://www.linkedin.com/in/omniashakur/,
-in Upwork: https://www.upwork.com/freelancers/~018f7eb85f909618c5,
 
